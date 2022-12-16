@@ -1,1 +1,1 @@
-# ashishghimire.github.io
+# techtipsbasic.github.io
